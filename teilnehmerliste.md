@@ -5,4 +5,5 @@
 Alexander G.
 
 ### Schüler
-
+Alexander Gustav
+Nico H.
